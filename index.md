@@ -1,0 +1,3 @@
+# Sito in costruzione ...
+
+![](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fwww.comune.fusignano.ra.it%2Fvar%2Fcomune_fusignano%2Fstorage%2Fimages%2Fmedia%2Fimages%2Flavori-in-corso%2F121104-1-ita-IT%2Flavori-in-corso_imagelarge.jpg&f=1&nofb=1)
